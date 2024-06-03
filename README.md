@@ -1,2 +1,3 @@
-there is a 90 percent chance that I never respond to anything anyone wants to tell me... 
-anywho you can slide into my dms at kailunden9@gmail.com
+Hai, I'm Kai (he/him). I mainly code with python, but I can kinda do javascript.
+I mainly work with spreadsheets, and google projects. 
+
